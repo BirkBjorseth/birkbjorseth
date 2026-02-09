@@ -1,4 +1,4 @@
-## Hei 👋 Jeg heter Birk Bjørseth!
+## 🚀 Hei, jeg heter Birk Bjørseth!
 
-### 🌐 Portfolio
+### 🖥️ Portfolio
 https://birkbjorseth.dev
